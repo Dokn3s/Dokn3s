@@ -1,5 +1,5 @@
 
 no idea what to put on ts
-  >>Maxwell / Will 
+  >>Maxwell / Higgs
  
-  >>He / him 
+  >>He / tar / they
