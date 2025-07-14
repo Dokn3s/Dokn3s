@@ -1,5 +1,5 @@
 
-![alt text](https://files.catbox.moe/gyazq5.png "jimmy urine")
+no idea what to put on ts
   >>Maxwell / Will 
  
   >>He / him 
